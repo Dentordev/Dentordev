@@ -1,1 +1,1 @@
-Hi Im DentorDev I am Intrested in making fun and unique codes that can help people 
+Hi Im Dentor, A Malware and User-Cyber-Security Guy.
